@@ -12,3 +12,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i live here now
 
+
+Busy with work and stuff
